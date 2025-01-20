@@ -8,4 +8,3 @@ Protect your small business from cyberattacks by watching my videos on [YouTube]
 - Affordable cybersecurity solutions
 
 🎥 Don't forget to subscribe!
-# My-YouTube-Channel
